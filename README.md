@@ -1,5 +1,5 @@
 
-# Janeice Products  Premium Cabinets Computer | Premium Cabinets Computer Enclosure |  Cabinets Computer Online Deals
+# Janeice Products | Premium Cabinets Computer | Premium Cabinets Computer Enclosure |  Cabinets Computer Online Deals
 
 
 ---
